@@ -1,2 +1,2 @@
 # yencarilo.github.io
-*Strawberry flavored desserts are my most favorite kind of sweets.*
+*Do you find law or justice interesting?
